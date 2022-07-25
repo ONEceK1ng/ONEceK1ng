@@ -1,5 +1,5 @@
 Who are you? Who i'm? 
-This is channel about me, OneceK1ng.
+This is channel about me, 'one'ceK1ng.
 I speak engliesh very bad. 
 But, i talk you , what happend in this place.
 )
